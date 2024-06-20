@@ -8,7 +8,7 @@ aHR0cHM6Ly93d3cueW91dHViZS5jb20vd2F0Y2g/dj1kUXc0dzlXZ1hjUTtodHRwczovL3d3dy55b3V0
 ```
 ### Decrypt it to reveal the answer!
 
-![shh](http://url/to/img.png](https://i.ibb.co/TcdhSbn/Ke-pernyo-foto-2024-06-20-7-52-30.png)
+![shh](https://i.ibb.co/TcdhSbn/Ke-pernyo-foto-2024-06-20-7-52-30.png)
 
 ## TODO to win your reward:
 
